@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Blanq13156
-- 👀 I’m interested in ...automotive and clothes for teenagers
+- 👀 I’m interested in ...my shop online with clothes for teenanger
 - 🌱 I’m currently learning ...work via the Internet
 - 💞️ I’m looking to collaborate on ...no
 - 📫 How to reach me ...mail :blankkacper@gmail.com
