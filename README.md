@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...automotive and clothes for teenagers
 - 🌱 I’m currently learning ...work via the Internet
 - 💞️ I’m looking to collaborate on ...no
-- 📫 How to reach me ...
+- 📫 How to reach me ...mail :blankkacper@gmail.com
 - 😄 Pronouns: ...he
 - ⚡ Fun fact: ...I like money very much😂
 
